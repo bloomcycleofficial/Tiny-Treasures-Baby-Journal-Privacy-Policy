@@ -3,6 +3,7 @@ Privacy Policy
 Tiny Treasures: Baby Journal
 
 Effective date: November 2026
+
 Last updated: November 2026
 
 In short
