@@ -1,6 +1,6 @@
 Privacy Policy
 
-Tiny Treasures – Baby Memory Journal
+Tiny Treasures – Baby Journal
 Effective date: November 2026
 Last updated: November 2026
 
